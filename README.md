@@ -19,7 +19,7 @@ One day, on the _203.5416.78_, he decided to take his spaceship and travel accro
 
 ***Roy*** quickly realized that his appearance and language were too different from the humans on Earth, and he needed to blend in if he wanted to avoid being discovered. He decided to disguise himself as a human and learn their ways, so he carefully observed the people around him and adapted his appearance and behavior accordingly.
 
-He could change his appearance and he did it, because for people of this time his form would be strange. When he first met people on Earth, he copied their appearance. After he tried to speak with them, but it was a bad idea, because his first question was what year is now? People who listened this, thought that he was strange and called hospital.
+He could change his appearance and he did it, because for people of this time his form would be strange. When he first met people on Earth, he copied their appearance. After he tried to speak with them, but it was a bad idea, because his first question was what year is now? People who listened this, thought that he was strange and called hospital...
 
 
 
