@@ -18,4 +18,4 @@ One day, on the _203.5416.78_, he decided to take his spaceship and travel accro
 
 He could change his appearance and he did it, because for people in this time his form did be strange. When he met first people in Earth, he copied his appearance. After he tried to speak with other, but it was a bad idea, because his first question was Which year is now? People who listened this, thinkeds that he is strange and called hospital.
 
-Roy quickly realized that his appearance and language were too different from the humans on Earth, and he needed to blend in if he wanted to avoid being discovered. He decided to disguise himself as a human and learn their ways, so he carefully observed the people around him and adapted his appearance and behavior accordingly.
+***Roy*** quickly realized that his appearance and language were too different from the humans on Earth, and he needed to blend in if he wanted to avoid being discovered. He decided to disguise himself as a human and learn their ways, so he carefully observed the people around him and adapted his appearance and behavior accordingly.
