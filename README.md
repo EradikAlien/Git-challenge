@@ -5,8 +5,8 @@
 
 Here's the story of Roy Rogers. Roy is like every other Uroks :
 
-- tiny
-- 3 tentacles arms
+- tiny.
+- 3 tentacles arms.
 - and his legs are so tiny that you could barely distinguish them from his body.
 
 One day, on the _203.5416.78_, he decided to take his spaceship and travel accross the universe.
