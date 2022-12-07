@@ -7,3 +7,4 @@ Here's the story of Roy Rogers. Roy is like every other Uroks :
 + and a legs so tiny that you could barely distinguish them from his body.
 
 One day, on the _203.5416.78_, he decided to take his spaceship and travel accross the universe.
+- He landed on Earth 15 lightyears later. The date on Earth was 1944.
